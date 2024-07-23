@@ -1,5 +1,6 @@
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.reddit.com%2Fr%2FFUCKFACEPOD%2Fcomments%2F1c7ry6e%2Fi_have_evidence_birds_have_balls%2F&psig=AOvVaw2qgK-H5_S1MzN2MZir4I_-&ust=1721864351708000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCLiG49mqvocDFQAAAAAdAAAAABAE
-<h1 align="center">Hi 👋, I'm Bora</h1>
+![WhatsApp Image 2024-06-27 at 03 00 04_9d68870d](https://github.com/user-attachments/assets/82af6175-f275-4140-8c99-0dbfbb039010)
+
+<h1 align="center">Hi 👋, I'm Bora</h1> 
 - ⚡ Fun fact **I am beginner ;)**
 
 <h3 align="left">Connect with me:</h3>
