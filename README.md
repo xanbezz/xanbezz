@@ -1,7 +1,7 @@
 ![WhatsApp Image 2024-06-27 at 03 00 04_9d68870d](https://github.com/user-attachments/assets/82af6175-f275-4140-8c99-0dbfbb039010)
 
 <h1 align="center">Hi 👋, I'm Bora</h1> 
-- ⚡ Fun fact hardest parkour game here --> https://play.unity.com/en/games/2bc29dfd-b9b5-434f-9a9e-4225034feb04/jelly
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
